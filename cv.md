@@ -3,7 +3,7 @@
 *Phone: +375297966799
 *Telegram: @KaiSceptile
 *Email: kaisceptile.yandex.ru
-3. I'm a second-year student of BSUIR. The third semester finished 2 month ago, and it will be soon practical work. 
+3. I'm a second-year student of BSUIR. The third semester finished 2 month ago, and it will be soon practical job. 
 I hope to end this curse successfully and to be taken on.
 4.Skills:
 *Delphi
